@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JBJESSIEPRO
+- 👋 Hi, I’m @Jessie_Boi
 - 👀 I’m interested in aime, games, manga, music and programing.
 - 🌱 I’m currently learning how to program
 - 💞️ I’m looking to collaborate on ...idk
